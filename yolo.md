@@ -1,4 +1,4 @@
 ## You only live once?
-### What abour re-incarnation?
+### What about re-incarnation?
 
 Oh well!
